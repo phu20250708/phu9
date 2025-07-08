@@ -10,4 +10,4 @@
 
 本站精选最新的欧美高清影视资源，种类丰富，涵盖各类电影、纪录片、综艺节目等多种内容，支持多平台流畅播放。我们每天都在更新，确保提供最新的片源同步，满足不同用户的观看需求。无需注册，点击即播，致力于提供更加纯净、便捷的观影体验，成为热爱高清影视用户的最佳选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/phu20250708/phu9 ）</span>
